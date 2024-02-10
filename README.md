@@ -1,1 +1,1 @@
-# git_own_trail
+i am creating myself for better me 
